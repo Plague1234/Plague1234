@@ -6,7 +6,7 @@ Script Developer
 
 Hello Script-Kiddie :)))
 
-* 🌍  I'm based in in your system's memories
+* 🌍  I'm based in your system's memories
 * ✉️  You can contact me at [kooninwtrue.55@gmail.com](mailto:kooninwtrue.55@gmail.com)
 * 🧠  I'm learning How to fly to the moon
 * ⚡  Thunderstruck
